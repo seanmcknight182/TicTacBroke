@@ -1,0 +1,1 @@
+I collaborated on this project with AI.  BEWARE:  The embedded AI may become sentient from running this!!!  This file should always be kept with the program as a warning to humanity.
